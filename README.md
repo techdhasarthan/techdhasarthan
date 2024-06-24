@@ -17,7 +17,7 @@
 
 - My portfolio (https://techdhasarthan.github.io/portfolio/)
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1KMaCflcacpRAt_Ns4aK7cbThOgWl4M1c/view?usp=sharing](https://drive.google.com/file/d/1KMaCflcacpRAt_Ns4aK7cbThOgWl4M1c/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1W8oDWH85ZljK5q1jwHhsVo5X9xPTmi_z/view?usp=sharing]
 
 - ⚡ Fun fact **I am natural and dedicated.**
 
