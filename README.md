@@ -17,7 +17,7 @@
 
 - My portfolio (https://techdhasarthan.github.io/portfolio/)
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1sB8vN7v6-YWy8Rm7viTqnqu2dJXXoS2B/view?usp=sharing]
+- 📄 Know about my experiences [https://drive.google.com/file/d/1zgNjGpb-4LUBSD5tvw53xXzYyWfa6C3-/view?usp=sharing]
 
 - ⚡ Fun fact **Sometimes, intuition is more reliable than logic.**
 
